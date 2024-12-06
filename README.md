@@ -1,2 +1,2 @@
-# best-resume--ever
+# best-resume-ever
 my resume (so good)
